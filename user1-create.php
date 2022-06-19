@@ -1,1 +1,1 @@
-we are here for you buddy
+nothing is here okay
